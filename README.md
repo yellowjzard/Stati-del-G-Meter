@@ -1,0 +1,1 @@
+# Stati-del-G-Meter
